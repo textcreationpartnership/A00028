@@ -32,7 +32,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-A True chronologi of all the kings of England from Brute, the first king vnto our most sacred King C
+
+1. A TRVE CHRONOLOGI OF ALL THE KINGS OF ENGLAND FROM BRVE THE FIRST KING VNTO OUR MOST SACRED KING CHARLES MŌARKE OF YE WHOLE YIES▪▪
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
